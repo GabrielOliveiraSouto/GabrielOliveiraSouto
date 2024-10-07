@@ -12,7 +12,7 @@
   - Comer churrasco 🍖
   - Jogar videogame 🎮
 
-![Uploading image.png…](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fingrrrrrrrrrid%2Fs-h-i-t-p-o-s-t%2F&psig=AOvVaw00Q2bY0PKvfVN_VV6ti2W_&ust=1728408247677000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJj935Tl_IgDFQAAAAAdAAAAABAE)
+![Uploading image.png…](https://i.ytimg.com/vi/WTtU27IEJJo/sddefault.jpg)
 
 
 ## Tecnologias que uso
